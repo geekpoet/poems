@@ -20,3 +20,9 @@ sass is evil
 pillow fights are criminal
 snowballs fights are war crimes
 
+but without all these vices
+life would be empty, void
+so revel in your worst nature
+snuggle deeply
+huh warmly
+and bow to loud applause
